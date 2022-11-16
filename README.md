@@ -104,7 +104,7 @@ Regenerar documentos NO ACEPTADOS POR SUNAT: [Guía](https://docs.google.com/doc
 
 
 
-## R&R SOLUCIONES CONTABLES
+## Datta Tecnologies SRL
 
-softerp.soluciones@gmail.com<br>
-wsapp: 969235746<br>
+dattatecnologies@hotmail.com<br>
+wsapp: 956598992<br>
