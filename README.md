@@ -1,4 +1,4 @@
-<img src="https://cirujanodeimpresoras.com/wp-content/uploads/2022/10/cropped-logoacademia.png" width="320">
+
 
 # **Facturador PRO4**
 
